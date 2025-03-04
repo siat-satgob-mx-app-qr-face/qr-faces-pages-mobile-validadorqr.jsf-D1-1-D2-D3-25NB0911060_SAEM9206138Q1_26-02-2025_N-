@@ -1,0 +1,1 @@
+# qr-faces-pages-mobile-validadorqr.jsf-D1-1-D2-D3-25NB0911060_SAEM9206138Q1_26-02-2025_N-
